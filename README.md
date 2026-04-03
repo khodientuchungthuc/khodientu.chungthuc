@@ -1,1 +1,0 @@
-# khodientu.chungthuc
